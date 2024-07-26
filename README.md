@@ -1,2 +1,2 @@
 # Free-fire-
-Free fire diamond 100000 diamond
+Free fire diamond 1000 diamond redeem code
